@@ -1,4 +1,4 @@
-# 👋 Hi, I'm David de Haro Malo de Molina  
+I'm David de Haro Malo de Molina  
 
 Manager in the maritime and nautical tourism sector, with experience in sustainable mobility, renewable energy applied to vessels, and cultural & educational projects linked to the sea. Founder and CEO of **Mundo Marino Catamaranes**, based in Dénia and Málaga.  
 
